@@ -1,4 +1,3 @@
-- she/they
 - anna/angel
 - cat lover
 - stan txt
